@@ -3,4 +3,4 @@
 
 ![IMG 8274](https://files.catbox.moe/9ffxgs.png)
 
-[𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://jaygardiner.straw.page) , [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://jaygardiner.atabook.org)
+<p align="center"> [𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://jaygardiner.straw.page) , [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://jaygardiner.atabook.org) </p>
