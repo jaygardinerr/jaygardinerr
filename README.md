@@ -6,4 +6,4 @@
 <img src="https://i.postimg.cc/tg5GQFnp/IMG-8911.png" width=450>
 
 
-[𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://jaygardiner.straw.page) , [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://jaygardiner.atabook.org)
+[𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://maxbroussard.straw.page) , [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://jaygardiner.atabook.org)
